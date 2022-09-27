@@ -2,3 +2,8 @@
 Signs with Smart Connectivity for Better Road Safety
 
 IBM Nalaiya Thiran Project for Signs with Smart Connectivity for Better Road Safety
+Team members:
+Javvadi Harish Mohana Swami Naidu
+S Harish
+M Jaivishwa
+Guntur Harshavardhan
